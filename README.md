@@ -15,3 +15,5 @@ hi attachment, hi care ahea jyla me love bolel , je ki life time asel , idk mala
 ek line vachli thithe tu bolel ki don't worry I will be with you always, ata yacha hi meaning physically gheatil , 
 but for me you are always with me in my mind in my imagination, ratri zopta , sakali uthlya vr the first thought which came in my mind is you ,  
 but UK aja kal khup jast imagination karay la me , aikayla thoda funny vattel but dk ka bas happy vatt  ,
+i dont konw tu hea kadhich vachshil or vachshil ki ny pn bas mala je bolay hota te boltoy still trying ki jast nako lihay la coz time khup fast chalay just me hea lihita na kas ek tas gela ssamajala hi ny,
+bagh na yar jevha tu bolat astes tevha hea bolay chi himmat naste ani ek ata , me littery 1-2 paragraph lihun cut kelet mala ny mahit me as ka kela , even i dont even konw me ky kartoy .. sod mazya badhal nahi sangay cha coz tu are suffering for way more than this, sry yar tas tras det asto nistach tula ,i hope hea vachshil tu .... take care buddy❤️ 
