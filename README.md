@@ -3,10 +3,10 @@ same month ig same date thd far phudhye mage asel ,
 but same situation just a day before message kelel tu paper chya , 
 tevha hi abhas navta zalel Ani ata hi nahi zalel, me hea sangun tula bleam nahi karat ye , 
 chuki Mazi ahea ki mala abhas karay la hava hota , though aja message NY kelas tu but still I got that answer je ig mala adhich mahit hot ,
-but still heart need to hear that coz tyla kadhich viswas ny basat , what hurt is as Bina kahi inform karun gayab zalis as last time , 
+but still heart need to hear that coz tula kadhich viswas ny basat , what hurt is as Bina kahi inform karun gayab zalis as last time , 
 I never say ki as Karu nakos or asch kr Ani tasch kr , if navta bolay cha just simply sangay cha hota ,ki NY bolay cha Tula bas that was enough to understand for me ,
 tas hi    kitich changla treat karto me tyla kadhi hi just bhandat ACH asto , chid chid karat asto ,
-Ani idk me as ka karto  or I knew the reason bas me te accept nahi karat ye, me hea lihitoy not for you simpathy ki tu bolshil vegre , 
+Ani idk me as ka karto  or I knew the reason bas me te accept nahi karat ye,heach sagla kahi years adhi kiti bhari hota na kiti enjoy karay cha masti karay chea idk why but ha may month mazya sathi yevada unlucky ka ahea like jevha hi uetoy kahi n kahi vait hotay , like aja ach bagh aja 10 ahea same 3 years adhi hota suddenly everything collapsed ani look at now kas sagla gunta padlay life cha ,me hea lihitoy not for you simpathy ki tu bolshil vegre ,just te continue messages cheak karne ki tuza message alay ki ny hea tari thoda kami hoil ata ,
 as kahich nahi if Tula nahi bolay cha Nako bolus , just next time bolay la yeshil na tevha ekda tharav ki kharch Tula bolay ch ahea ki nahi just be clear in your mind , 
 bas hea sagla bolay cha hot tya divshi call VR but himmat ach nahi zali , Bas tuza aikla and forgot everything, ata hi man nahi lagat ye maza abhasat , 
 vichar kela ki je ahea manat ekda bolun takto atleast shant hoil man thodya Vela sathi .. 
@@ -16,4 +16,4 @@ ek line vachli thithe tu bolel ki don't worry I will be with you always, ata yac
 but for me you are always with me in my mind in my imagination, ratri zopta , sakali uthlya vr the first thought which came in my mind is you ,  
 but UK aja kal khup jast imagination karay la me , aikayla thoda funny vattel but dk ka bas happy vatt  ,
 i dont konw tu hea kadhich vachshil or vachshil ki ny pn bas mala je bolay hota te boltoy still trying ki jast nako lihay la coz time khup fast chalay just me hea lihita na kas ek tas gela ssamajala hi ny,
-bagh na yar jevha tu bolat astes tevha hea bolay chi himmat naste ani ek ata , me littery 1-2 paragraph lihun cut kelet mala ny mahit me as ka kela , even i dont even konw me ky kartoy .. sod mazya badhal nahi sangay cha coz tu are suffering for way more than this, sry yar tas tras det asto nistach tula ,i hope hea vachshil tu .... take care buddy❤️ 
+bagh na yar jevha tu bolat astes tevha hea bolay chi himmat naste ani ek ata , me littery 1-2 paragraph lihun cut kelet mala ny mahit me as ka kela , even i dont even konw me ky kartoy .. sod mazya badhal nahi sangay cha coz tu are suffering for way more than this, sry yar tas tras det asto nistach tula ,i hope hea vachshil tu .... dude vachla ashil tr smile kr be , kash na hea sagla me call vr bolu shaklo asto but dont konw ka tuza avaj aikla or tuza message ala ki sagla visarun jato, sod jaude , just take care buddy❤️ 
